@@ -17,7 +17,7 @@ description: My mission for the ultimate oatmeal cookie
 
 <p>
 I have a personal grudge against oatmeal raisin cookies (<a href="https://tvquot.es/the-office/quote/6gvikg2/">me irl</a>), so I made it my mission to make the ultimate oatmeal cookie. 
-I started with <a href="https://www.youtube.com/watch?v=gGBC4-CsXOM">Calire Saffitz's oat and pecan brittle cookies</a> and made 4 additional variations with different fillings.
+I started with <a href="https://www.youtube.com/watch?v=gGBC4-CsXOM">Claire Saffitz's oat and pecan brittle cookies</a> and made 4 additional variations with different fillings.
 </p>
 
 
