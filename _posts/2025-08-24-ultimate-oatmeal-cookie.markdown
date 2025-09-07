@@ -34,3 +34,8 @@ My favorite is the batch with peanut butter chips, but they're all fantastic. I 
 <p>
 The different fillings don't affect the overall taste as much as I thought they might. It seems like more filling can be used for the same amount of dough for a more exaggerated difference. I wouldn't mind more of all the fillings - cranberries, chips, and pecan brittle bits - in each bite. More research is required to find the best ratio of fillings to dough.
 </p>
+
+
+<div>
+    <img class="image" src="/assets/images/blog/ultimate oatmeal cookie pile.jpg" >
+</div>
