@@ -9,3 +9,6 @@ layout: page
 <p>Contact <a href="mailto:DanesBakes@protonmail.com">DanesBakes@protonmail.com</a> to ask questins, give feedback, place an order, or share your deepest darkest secrets (standard baker-client confidentiality applies).
 Orders are catering-style and start at $50. Perfect for events, parties, or whenever you want a whole batch of baked goods to yourself.</p>
 
+<p>
+Thank you to H_surjus for making my profile picture!
+</p>

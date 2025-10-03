@@ -5,7 +5,7 @@ date: 2025-08-24 18:48
 image: /assets/images/blog/ultimate oatmeal tray.png
 headerImage: false
 tag:
-- cookie
+- Cookie
 category: blog
 #author: dane
 description: My mission for the ultimate oatmeal cookie
