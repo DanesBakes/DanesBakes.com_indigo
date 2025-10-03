@@ -29,7 +29,7 @@ This pie is a crowd pleaser and, in my opinion, doesn't suffer from any issues t
 </p>
 
 <p>
-The filling is rich and peanut buttery while still having a lightness to it. It's a lot like a peanut butter flavored pudding or cream filling because that's more or less what it is. The crust, ganache topping, and peanut topping add more peanut flavor and complimentary chocolate flavors as well as a pleasant variety of textures.
+The filling is rich and peanut buttery while still having a lightness to it. It's a lot like a peanut butter flavored pudding or cream filling because that's more or less what it is. The crust, ganache topping, and peanut topping add more peanut flavor and complimentary chocolate flavors as well as a pleasant variety of textures. Despite being as rich as it is, I don't feel guilty eating this like I would after eating a traditional cheesecake or dairy-based pie.
 </p>
 
 <p>

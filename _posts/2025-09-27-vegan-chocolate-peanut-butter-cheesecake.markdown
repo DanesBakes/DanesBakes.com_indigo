@@ -30,7 +30,7 @@ This pie is a crowd pleaser and, in my opinion, doesn't suffer from any issues t
 </p>
 
 <p>
-I personally prefer this to the Snickers Pie, since it's almost exactly the same peanut butter filling plus a layer of chocolate filling. The chocolate filling is thick and decadent with the peanut butter filling being a bit softer but still plenty rich and peanut buttery. The crust, ganache topping, and peanut topping add more peanut flavor and complimentary chocolate flavors as well as a delightful variety of textures.
+I personally prefer this to the Snickers Pie, since it's almost exactly the same peanut butter filling plus a layer of chocolate filling. The chocolate filling is thick and decadent with the peanut butter filling being a bit softer but still plenty rich and peanut buttery. The crust, ganache topping, and peanut topping add more peanut flavor and complimentary chocolate flavors as well as a delightful variety of textures. Despite being as rich and decadent as it is, I don't feel guilty eating this like I would after eating a traditional cheesecake.
 </p>
 
 <p>
